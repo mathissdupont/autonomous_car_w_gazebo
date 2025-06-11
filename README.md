@@ -88,7 +88,7 @@ MIT License © 2025
 
 ---
 
-[![Watch on YouTube](https://img.youtube.com/vi/37UanjivitE?si=sMFmPIjP3bvUrCoU/0.jpg)](https://www.youtube.com/watch?v=37UanjivitE?si=sMFmPIjP3bvUrCoU)
+[![Watch on YouTube](https://i9.ytimg.com/vi_webp/37UanjivitE/mqdefault.webp?v=68497316&sqp=CJjkpcIG&rs=AOn4CLB9bS0kxbymoyIM2hH164B01hMQGg)](https://www.youtube.com/watch?v=37UanjivitE?si=sMFmPIjP3bvUrCoU)
 
 
 ## 🌐 Contact
