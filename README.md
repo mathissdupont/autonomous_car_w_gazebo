@@ -95,3 +95,10 @@ MIT License © 2025
 
 For inquiries, reach out via:  
 📧 
+## 🌐 TEAM
+@	hillalay
+@	cerentolunay
+@	ozgurumutpirinc
+@	fatmanurrbulut
+@	ozgurdagli
+@	CEGE404
